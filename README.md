@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Matheus-procopio
 - 👀 I’m interested no meu relacionamento
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on  em tudo que estiver no eu alcance
 - 📫 How to reach me ...
 
 <!---
